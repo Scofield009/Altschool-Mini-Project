@@ -1,1 +1,0 @@
-# Altschool-Mini-Project
